@@ -1,3 +1,0 @@
-# Internship-hilifeai
-hilifeai
-## pushing
